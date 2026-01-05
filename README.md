@@ -75,4 +75,3 @@ Feel free to reach out for collaboration, mentorship, or if you're building some
 
 💼 LinkedIn :https://www.linkedin.com/in/balajisanthanam1/
 
-📬 Email: balagem@gmail.com
